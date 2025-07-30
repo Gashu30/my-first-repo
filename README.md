@@ -35,7 +35,7 @@
 
 ## 🌐 Let's Connect
 
-- 💼 [LinkedIn](www.linkedin.com/in/gashu-mesfin-b73208177) 
+- 💼 [LinkedIn] www.linkedin.com/in/gashu-mesfin-b73208177
   
 
 ---
